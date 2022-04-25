@@ -6,6 +6,4 @@ IKWUEGBUENYI AUGUSTUS -             SH-IT-0131782
 GROUP MEMBERS
 OGUNDARE OLAMIDE EMMANUEL           SH-IT-0049167
 Maryann Agada                        SH-IT-0126413
-
-
-Still updating other members.........
+Still updating other members.....
