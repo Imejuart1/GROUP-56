@@ -7,4 +7,5 @@ GROUP MEMBERS
 OGUNDARE OLAMIDE EMMANUEL           SH-IT-0049167
 Maryann Agada                        SH-IT-0126413
 Eberechi Nwankudu                    SH=IT-0001665
+Sadiq Iseoluwa                        SH-IT-0043347
 Still updating other members.....
